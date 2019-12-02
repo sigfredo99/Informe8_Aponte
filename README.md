@@ -1,1 +1,1 @@
-# INFORME-NRO8
+# Informe de Sesión Laboratorio N° 08-Sigfredo Aponte
